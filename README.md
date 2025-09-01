@@ -1,4 +1,4 @@
-# ReinaValeraLibre
+# Reina Valera Libre
 BibleMarkdown source of the Reina Valera Libre bible translation.
 
 BibleMarkdown is a Markdown dialect tailored for Bibles. BibleMarkdown is normal pandoc Markdown with the following extensions:
