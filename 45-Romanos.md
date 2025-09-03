@@ -175,106 +175,219 @@
 §7 Ciertamente apenas muere alguno por un justo: con todo podrá ser que alguno osara morir por el bueno. 
 §8 Mas Dios encarece su caridad para con nosotros, porque siendo aún pecadores, Cristo murió por nosotros.
 
-§9 Luego mucho más ahora, justificados en su sangre, por él seremos salvos de la ira. §10 Porque si siendo enemigos, fuimos reconciliados con Dios por la muerte de su Hijo, mucho más, estando reconciliados, seremos salvos por su vida.
+§9 Luego mucho más ahora, justificados en su sangre, por él seremos salvos de la ira. 
+§10 Porque si siendo enemigos, fuimos reconciliados con Dios por la muerte de su Hijo, mucho más, estando reconciliados, seremos salvos por su vida.
 
 §11 Y no sólo esto, mas aun nos gloriamos en Dios por el Señor nuestro Jesucristo, por el cual hemos ahora recibido la reconciliación.
 
 ## Cristo como lo opuesto a Adán; la gracia que trae vida inmortal es más poderosa que el pecado mortal
-§12 De consiguiente, vino la reconciliación por uno, así como el pecado entró en el mundo por un hombre, y por el pecado la muerte, y la muerte así pasó á todos los hombres, pues que todos pecaron. §13 Porque hasta la ley, el pecado estaba en el mundo; pero no se imputa pecado no habiendo ley. §14 No obstante, reinó la muerte desde Adam hasta Moisés, aun en los que no pecaron á la manera de la rebelión de Adam; el cual es figura del que había de venir.
+§12 De consiguiente, vino la reconciliación por uno, así como el pecado entró en el mundo por un hombre, y por el pecado la muerte, y la muerte así pasó á todos los hombres, pues que todos pecaron. 
+§13 Porque hasta la ley, el pecado estaba en el mundo; pero no se imputa pecado no habiendo ley. 
+§14 No obstante, reinó la muerte desde Adam hasta Moisés, aun en los que no pecaron á la manera de la rebelión de Adam; el cual es figura del que había de venir.
 
-§15 Mas no como el delito, tal fué el don: porque si por el delito de aquel uno murieron los muchos, mucho más abundó la gracia de Dios á los muchos, y el don por la gracia de un hombre, Jesucristo. §16 Ni tampoco de la manera que por un pecado, así también el don: porque el juicio á la verdad vino de un pecado para condenación, mas la gracia vino de muchos delitos para justificación. §17 Porque, si por un delito reinó la muerte por uno, mucho más reinarán en vida por un Jesucristo los que reciben la abundancia de la gracia, y del don de la justicia.
+§15 Mas no como el delito, tal fué el don: porque si por el delito de aquel uno murieron los muchos, mucho más abundó la gracia de Dios á los muchos, y el don por la gracia de un hombre, Jesucristo. 
+§16 Ni tampoco de la manera que por un pecado, así también el don: porque el juicio á la verdad vino de un pecado para condenación, mas la gracia vino de muchos delitos para justificación. 
+§17 Porque, si por un delito reinó la muerte por uno, mucho más reinarán en vida por un Jesucristo los que reciben la abundancia de la gracia, y del don de la justicia.
 
-§18 Así que, de la manera que por un delito vino la culpa á todos los hombres para condenación, así por una justicia vino la gracia á todos los hombres para justificación de vida. §19 Porque como por la desobediencia de un hombre los muchos fueron constituídos pecadores, así por la obediencia de uno los muchos serán constituídos justos. §20 La ley empero entró para que el pecado creciese; mas cuando el pecado creció, sobrepujó la gracia; §21 Para que, de la manera que el pecado reinó para muerte, así también la gracia reine por la justicia para vida eterna por Jesucristo Señor nuestro. 
+§18 Así que, de la manera que por un delito vino la culpa á todos los hombres para condenación, así por una justicia vino la gracia á todos los hombres para justificación de vida. 
+§19 Porque como por la desobediencia de un hombre los muchos fueron constituídos pecadores, así por la obediencia de uno los muchos serán constituídos justos. 
+§20 La ley empero entró para que el pecado creciese; mas cuando el pecado creció, sobrepujó la gracia; 
+§21 Para que, de la manera que el pecado reinó para muerte, así también la gracia reine por la justicia para vida eterna por Jesucristo Señor nuestro. 
 
 # 6 
 ## Fuimos crucificados con ellos, morimos con ellos, sepultados con ellos y resucitamos con Cristo Jesús
-§1 ¿Pues qué diremos? Perseveraremos en pecado para que la gracia crezca? §2 En ninguna manera. Porque los que somos muertos al pecado, ¿cómo viviremos aún en él? §3 ¿O no sabéis que todos los que somos bautizados en Cristo Jesús, somos bautizados en su muerte? §4 Porque somos sepultados juntamente con él á muerte por el bautismo; para que como Cristo resucitó de los muertos por la gloria del Padre, así también nosotros andemos en novedad de vida.
+§1 ¿Pues qué diremos? Perseveraremos en pecado para que la gracia crezca? 
+§2 En ninguna manera. Porque los que somos muertos al pecado, ¿cómo viviremos aún en él? 
+§3 ¿O no sabéis que todos los que somos bautizados en Cristo Jesús, somos bautizados en su muerte? 
+§4 Porque somos sepultados juntamente con él á muerte por el bautismo; para que como Cristo resucitó de los muertos por la gloria del Padre, así también nosotros andemos en novedad de vida.
 
-§5 Porque si fuimos plantados juntamente en él á la semejanza de su muerte, así también lo seremos á la de su resurrección: §6 Sabiendo esto, que nuestro viejo hombre juntamente fué crucificado con él, para que el cuerpo del pecado sea deshecho, á fin de que no sirvamos más al pecado. §7 Porque el que es muerto, justificado es del pecado.
+§5 Porque si fuimos plantados juntamente en él á la semejanza de su muerte, así también lo seremos á la de su resurrección: 
+§6 Sabiendo esto, que nuestro viejo hombre juntamente fué crucificado con él, para que el cuerpo del pecado sea deshecho, á fin de que no sirvamos más al pecado. 
+§7 Porque el que es muerto, justificado es del pecado.
 
 ## Viviendo con Cristo resucitado
-§8 Y si morimos con Cristo, creemos que también viviremos con él; §9 Sabiendo que Cristo, habiendo resucitado de entre los muertos, ya no muere: la muerte no se enseñoreará más de él. §10 Porque el haber muerto, al pecado murió una vez; mas el vivir, á Dios vive. §11 Así también vosotros, pensad que de cierto estáis muertos al pecado, mas vivos á Dios en Cristo Jesús Señor nuestro.
+§8 Y si morimos con Cristo, creemos que también viviremos con él; 
+§9 Sabiendo que Cristo, habiendo resucitado de entre los muertos, ya no muere: la muerte no se enseñoreará más de él. 
+§10 Porque el haber muerto, al pecado murió una vez; mas el vivir, á Dios vive. 
+§11 Así también vosotros, pensad que de cierto estáis muertos al pecado, mas vivos á Dios en Cristo Jesús Señor nuestro.
 
 ## La amonestación del apóstol a los fieles de permanecer en este conocimiento de la salvación y no seguir sirviendo al pecado
-§12 No reine, pues, el pecado en vuestro cuerpo mortal, para que le obedezcáis en sus concupiscencias; §13 Ni tampoco presentéis vuestros miembros al pecado por instrumentos de iniquidad; antes presentaos á Dios como vivos de los muertos, y vuestros miembros á Dios por instrumentos de justicia. §14 Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley, sino bajo la gracia.
+§12 No reine, pues, el pecado en vuestro cuerpo mortal, para que le obedezcáis en sus concupiscencias; 
+§13 Ni tampoco presentéis vuestros miembros al pecado por instrumentos de iniquidad; antes presentaos á Dios como vivos de los muertos, y vuestros miembros á Dios por instrumentos de justicia. 
+§14 Porque el pecado no se enseñoreará de vosotros; pues no estáis bajo la ley, sino bajo la gracia.
 
 ## El servicio del pecado ha dado paso a la justicia
-§15 ¿Pues qué? ¿Pecaremos, porque no estamos bajo de la ley, sino bajo de la gracia? En ninguna manera. §16 ¿No sabéis que á quien os prestáis vosotros mismos por siervos para obedecerle, sois siervos de aquel á quien obedecéis, ó del pecado para muerte, ó de la obediencia para justicia? §17 Empero gracias á Dios, que aunque fuisteis siervos del pecado, habéis obedecido de corazón á aquella forma de doctrina á la cual sois entregados; §18 Y libertados del pecado, sois hechos siervos de la justicia.
+§15 ¿Pues qué? ¿Pecaremos, porque no estamos bajo de la ley, sino bajo de la gracia? En ninguna manera. 
+§16 ¿No sabéis que á quien os prestáis vosotros mismos por siervos para obedecerle, sois siervos de aquel á quien obedecéis, ó del pecado para muerte, ó de la obediencia para justicia? 
+§17 Empero gracias á Dios, que aunque fuisteis siervos del pecado, habéis obedecido de corazón á aquella forma de doctrina á la cual sois entregados; 
+§18 Y libertados del pecado, sois hechos siervos de la justicia.
 
-§19 Humana cosa digo, por la flaqueza de vuestra carne: que como para iniquidad presentasteis vuestros miembros á servir á la inmundicia y á la iniquidad, así ahora para santidad presentéis vuestros miembros á servir á la justicia. §20 Porque cuando fuisteis siervos del pecado, erais libres acerca de la justicia. §21 ¿Qué fruto, pues, teníais de aquellas cosas de las cuales ahora os avergonzáis? porque el fin de ellas es muerte. §22 Mas ahora, librados del pecado, y hechos siervos á Dios, tenéis por vuestro fruto la santificación, y por fin la vida eterna. §23 Porque la paga del pecado es muerte: mas la dádiva de Dios es vida eterna en Cristo Jesús Señor nuestro. 
+§19 Humana cosa digo, por la flaqueza de vuestra carne: que como para iniquidad presentasteis vuestros miembros á servir á la inmundicia y á la iniquidad, así ahora para santidad presentéis vuestros miembros á servir á la justicia. 
+§20 Porque cuando fuisteis siervos del pecado, erais libres acerca de la justicia. 
+§21 ¿Qué fruto, pues, teníais de aquellas cosas de las cuales ahora os avergonzáis? porque el fin de ellas es muerte. 
+§22 Mas ahora, librados del pecado, y hechos siervos á Dios, tenéis por vuestro fruto la santificación, y por fin la vida eterna. 
+§23 Porque la paga del pecado es muerte: mas la dádiva de Dios es vida eterna en Cristo Jesús Señor nuestro. 
 
 # 7 
 ## Cuando hemos muerto y resucitado con Cristo, estamos legítimamente libres de la ley y estamos obligados a servir al Cristo resucitado creyéndonos muertos al pecado
-§1 ¿Ignoráis, hermanos, (porque hablo con los que saben la ley) que la ley se enseñorea del hombre entre tanto que vive? §2 Porque la mujer que está sujeta á marido, mientras el marido vive está obligada á la ley; mas muerto el marido, libre es de la ley del marido. §3 Así que, viviendo el marido, se llamará adúltera si fuere de otro varón; mas si su marido muriere, es libre de la ley; de tal manera que no será adúltera si fuere de otro marido. §4 Así también vosotros, hermanos míos, estáis muertos á la ley por el cuerpo de Cristo, para que seáis de otro, á saber, del que resucitó de los muertos, á fin de que fructifiquemos á Dios. §5 Porque mientras estábamos en la carne, los afectos de los pecados que eran por la ley, obraban en nuestros miembros fructificando para muerte. §6 Mas ahora estamos libres de la ley, habiendo muerto á aquella en la cual estábamos detenidos, para que sirvamos en novedad de espíritu, y no en vejez de letra.
+§1 ¿Ignoráis, hermanos, (porque hablo con los que saben la ley) que la ley se enseñorea del hombre entre tanto que vive? 
+§2 Porque la mujer que está sujeta á marido, mientras el marido vive está obligada á la ley; mas muerto el marido, libre es de la ley del marido. 
+§3 Así que, viviendo el marido, se llamará adúltera si fuere de otro varón; mas si su marido muriere, es libre de la ley; de tal manera que no será adúltera si fuere de otro marido. 
+§4 Así también vosotros, hermanos míos, estáis muertos á la ley por el cuerpo de Cristo, para que seáis de otro, á saber, del que resucitó de los muertos, á fin de que fructifiquemos á Dios. 
+§5 Porque mientras estábamos en la carne, los afectos de los pecados que eran por la ley, obraban en nuestros miembros fructificando para muerte. 
+§6 Mas ahora estamos libres de la ley, habiendo muerto á aquella en la cual estábamos detenidos, para que sirvamos en novedad de espíritu, y no en vejez de letra.
 
 ## El efecto calamitoso de la ley, que familiariza al hombre con el pecado y le da vida al pecado en la carne
-§7 ¿Qué pues diremos? ¿La ley es pecado? En ninguna manera. Empero yo no conocí el pecado sino por la ley: porque tampoco conociera la concupiscencia, si la ley no dijera: No codiciarás. §8 Mas el pecado, tomando ocasión, obró en mí por el mandamiento toda concupiscencia: porque sin la ley el pecado está muerto. §9 Así que, yo sin la ley vivía por algún tiempo: mas venido el mandamiento, el pecado revivió, y yo morí. §10 Y hallé que el mandamiento, intimado para vida, para mí era mortal: §11 Porque el pecado, tomando ocasión, me engañó por el mandamiento, y por él me mató. §12 De manera que la ley á la verdad es santa, y el mandamiento santo, y justo, y bueno.
+§7 ¿Qué pues diremos? ¿La ley es pecado? En ninguna manera. Empero yo no conocí el pecado sino por la ley: porque tampoco conociera la concupiscencia, si la ley no dijera: No codiciarás. 
+§8 Mas el pecado, tomando ocasión, obró en mí por el mandamiento toda concupiscencia: porque sin la ley el pecado está muerto. 
+§9 Así que, yo sin la ley vivía por algún tiempo: mas venido el mandamiento, el pecado revivió, y yo morí. 
+§10 Y hallé que el mandamiento, intimado para vida, para mí era mortal: 
+§11 Porque el pecado, tomando ocasión, me engañó por el mandamiento, y por él me mató. 
+§12 De manera que la ley á la verdad es santa, y el mandamiento santo, y justo, y bueno.
 
 §13 ¿Luego lo que es bueno, á mí me es hecho muerte? No; sino que el pecado, para mostrarse pecado, por lo bueno me obró la muerte, haciéndose pecado sobremanera pecante por el mandamiento.
 
 ## La impotencia de la ley y de la buena voluntad ante el pecado como poder en la carne
-§14 Porque sabemos que la ley es espiritual; mas yo soy carnal, vendido á sujeción del pecado. §15 Porque lo que hago, no lo entiendo; ni lo que quiero, hago; antes lo que aborrezco, aquello hago. §16 Y si lo que no quiero, esto hago, apruebo que la ley es buena. §17 De manera que ya no obro aquello, sino el pecado que mora en mí. §18 Y yo sé que en mí (es á saber, en mi carne) no mora el bien: porque tengo el querer, mas efectuar el bien no lo alcanzo. §19 Porque no hago el bien que quiero; mas el mal que no quiero, éste hago. §20 Y si hago lo que no quiero, ya no lo obro yo, sino el pecado que mora en mí. §21 Así que, queriendo yo hacer el bien, hallo esta ley: Que el mal está en mí. §22 Porque según el hombre interior, me deleito en la ley de Dios: §23 Mas veo otra ley en mis miembros, que se rebela contra la ley de mi espíritu, y que me lleva cautivo á la ley del pecado que está en mis miembros. §24 ¡Miserable hombre de mí! ¿quién me librará del cuerpo de esta muerte? §25 Gracias doy á Dios, por Jesucristo Señor nuestro. Así que, yo mismo con la mente sirvo á la ley de Dios, mas con la carne á la ley del pecado. 
+§14 Porque sabemos que la ley es espiritual; mas yo soy carnal, vendido á sujeción del pecado. 
+§15 Porque lo que hago, no lo entiendo; ni lo que quiero, hago; antes lo que aborrezco, aquello hago. 
+§16 Y si lo que no quiero, esto hago, apruebo que la ley es buena. 
+§17 De manera que ya no obro aquello, sino el pecado que mora en mí. 
+§18 Y yo sé que en mí (es á saber, en mi carne) no mora el bien: porque tengo el querer, mas efectuar el bien no lo alcanzo. 
+§19 Porque no hago el bien que quiero; mas el mal que no quiero, éste hago. 
+§20 Y si hago lo que no quiero, ya no lo obro yo, sino el pecado que mora en mí. 
+§21 Así que, queriendo yo hacer el bien, hallo esta ley: Que el mal está en mí. 
+§22 Porque según el hombre interior, me deleito en la ley de Dios: 
+§23 Mas veo otra ley en mis miembros, que se rebela contra la ley de mi espíritu, y que me lleva cautivo á la ley del pecado que está en mis miembros. 
+§24 ¡Miserable hombre de mí! ¿quién me librará del cuerpo de esta muerte? 
+§25 Gracias doy á Dios, por Jesucristo Señor nuestro. Así que, yo mismo con la mente sirvo á la ley de Dios, mas con la carne á la ley del pecado. 
 
 # 8 
 ## El cristiano está bajo la ley del Espíritu
-§1 Ahora pues, ninguna condenación hay para los que están en Cristo Jesús, los que no andan conforme á la carne, mas conforme al espíritu. §2 Porque la ley del Espíritu de vida en Cristo Jesús me ha librado de la ley del pecado y de la muerte. §3 Porque lo que era imposible á la ley, por cuanto era débil por la carne, Dios enviando á su Hijo en semejanza de carne de pecado, y á causa del pecado, condenó al pecado en la carne; §4 Para que la justicia de la ley fuese cumplida en nosotros, que no andamos conforme á la carne, mas conforme al espíritu.
+§1 Ahora pues, ninguna condenación hay para los que están en Cristo Jesús, los que no andan conforme á la carne, mas conforme al espíritu. 
+§2 Porque la ley del Espíritu de vida en Cristo Jesús me ha librado de la ley del pecado y de la muerte. 
+§3 Porque lo que era imposible á la ley, por cuanto era débil por la carne, Dios enviando á su Hijo en semejanza de carne de pecado, y á causa del pecado, condenó al pecado en la carne; 
+§4 Para que la justicia de la ley fuese cumplida en nosotros, que no andamos conforme á la carne, mas conforme al espíritu.
 
 ## El contraste entre los que sirven a Dios en el Espíritu y los que viven por los instintos de la carne
-§5 Porque los que viven conforme á la carne, de las cosas que son de la carne se ocupan; mas los que conforme al espíritu, de las cosas del espíritu. §6 Porque la intención de la carne es muerte; mas la intención del espíritu, vida y paz: §7 Por cuanto la intención de la carne es enemistad contra Dios; porque no se sujeta á la ley de Dios, ni tampoco puede. §8 Así que, los que están en la carne no pueden agradar á Dios.
+§5 Porque los que viven conforme á la carne, de las cosas que son de la carne se ocupan; mas los que conforme al espíritu, de las cosas del espíritu. 
+§6 Porque la intención de la carne es muerte; mas la intención del espíritu, vida y paz: 
+§7 Por cuanto la intención de la carne es enemistad contra Dios; porque no se sujeta á la ley de Dios, ni tampoco puede. 
+§8 Así que, los que están en la carne no pueden agradar á Dios.
 
 ## El cristiano como morada del Espíritu
-§9 Mas vosotros no estáis en la carne, sino en el espíritu, si es que el Espíritu de Dios mora en vosotros. Y si alguno no tiene el Espíritu de Cristo, el tal no es de él. §10 Empero si Cristo está en vosotros, el cuerpo á la verdad está muerto á causa del pecado; mas el espíritu vive á causa de la justicia. §11 Y si el Espíritu de aquel que levantó de los muertos á Jesús mora en vosotros, el que levantó á Cristo Jesús de los muertos, vivificará también vuestros cuerpos mortales por su Espíritu que mora en vosotros.
+§9 Mas vosotros no estáis en la carne, sino en el espíritu, si es que el Espíritu de Dios mora en vosotros. Y si alguno no tiene el Espíritu de Cristo, el tal no es de él. 
+§10 Empero si Cristo está en vosotros, el cuerpo á la verdad está muerto á causa del pecado; mas el espíritu vive á causa de la justicia. 
+§11 Y si el Espíritu de aquel que levantó de los muertos á Jesús mora en vosotros, el que levantó á Cristo Jesús de los muertos, vivificará también vuestros cuerpos mortales por su Espíritu que mora en vosotros.
 
 ## La posesión del espíritu garantiza la redención física de los hijos de Dios si soportan los sufrimientos de este tiempo
-§12 Así que, hermanos, deudores somos, no á la carne, para que vivamos conforme á la carne: §13 Porque si viviereis conforme á la carne, moriréis; mas si por el espíritu mortificáis las obras de la carne, viviréis. §14 Porque todos los que son guiados por el Espíritu de Dios, los tales son hijos de Dios. §15 Porque no habéis recibido el espíritu de servidumbre para estar otra vez en temor; mas habéis recibido el espíritu de adopción, por el cual clamamos, Abba, Padre.
+§12 Así que, hermanos, deudores somos, no á la carne, para que vivamos conforme á la carne: 
+§13 Porque si viviereis conforme á la carne, moriréis; mas si por el espíritu mortificáis las obras de la carne, viviréis. 
+§14 Porque todos los que son guiados por el Espíritu de Dios, los tales son hijos de Dios. 
+§15 Porque no habéis recibido el espíritu de servidumbre para estar otra vez en temor; mas habéis recibido el espíritu de adopción, por el cual clamamos, Abba, Padre.
 
-§16 Porque el mismo Espíritu da testimonio á nuestro espíritu que somos hijos de Dios. §17 Y si hijos, también herederos; herederos de Dios, y coherederos de Cristo; si empero padecemos juntamente con él, para que juntamente con él seamos glorificados.
+§16 Porque el mismo Espíritu da testimonio á nuestro espíritu que somos hijos de Dios. 
+§17 Y si hijos, también herederos; herederos de Dios, y coherederos de Cristo; si empero padecemos juntamente con él, para que juntamente con él seamos glorificados.
 
-§18 Porque tengo por cierto que lo que en este tiempo se padece, no es de comparar con la gloria venidera que en nosotros ha de ser manifestada. §19 Porque el continuo anhelar de las criaturas espera la manifestación de los hijos de Dios. §20 Porque las criaturas sujetas fueron á vanidad, no de grado, mas por causa del que las sujetó con esperanza, §21 Que también las mismas criaturas serán libradas de la servidumbre de corrupción en la libertad gloriosa de los hijos de Dios. §22 Porque sabemos que todas las criaturas gimen á una, y á una están de parto hasta ahora. §23 Y no sólo ellas, mas también nosotros mismos, que tenemos las primicias del Espíritu, nosotros también gemimos dentro de nosotros mismos, esperando la adopción, es á saber, la redención de nuestro cuerpo. §24 Porque en esperanza somos salvos; mas la esperanza que se ve, no es esperanza; porque lo que alguno ve, ¿á qué esperarlo? §25 Empero si lo que no vemos esperamos, por paciencia esperamos.
+§18 Porque tengo por cierto que lo que en este tiempo se padece, no es de comparar con la gloria venidera que en nosotros ha de ser manifestada. 
+§19 Porque el continuo anhelar de las criaturas espera la manifestación de los hijos de Dios. 
+§20 Porque las criaturas sujetas fueron á vanidad, no de grado, mas por causa del que las sujetó con esperanza, 
+§21 Que también las mismas criaturas serán libradas de la servidumbre de corrupción en la libertad gloriosa de los hijos de Dios. 
+§22 Porque sabemos que todas las criaturas gimen á una, y á una están de parto hasta ahora. 
+§23 Y no sólo ellas, mas también nosotros mismos, que tenemos las primicias del Espíritu, nosotros también gemimos dentro de nosotros mismos, esperando la adopción, es á saber, la redención de nuestro cuerpo. 
+§24 Porque en esperanza somos salvos; mas la esperanza que se ve, no es esperanza; porque lo que alguno ve, ¿á qué esperarlo? 
+§25 Empero si lo que no vemos esperamos, por paciencia esperamos.
 
-§26 Y asimismo también el Espíritu ayuda nuestra flaqueza: porque qué hemos de pedir como conviene, no lo sabemos; sino que el mismo Espíritu pide por nosotros con gemidos indecibles. §27 Mas el que escudriña los corazones, sabe cuál es el intento del Espíritu, porque conforme á la voluntad de Dios, demanda por los santos.
+§26 Y asimismo también el Espíritu ayuda nuestra flaqueza: porque qué hemos de pedir como conviene, no lo sabemos; sino que el mismo Espíritu pide por nosotros con gemidos indecibles. 
+§27 Mas el que escudriña los corazones, sabe cuál es el intento del Espíritu, porque conforme á la voluntad de Dios, demanda por los santos.
 
 ## El comienzo de nuestra comunión con Dios, obra de Dios, garantiza su finalización final
-§28 Y sabemos que á los que á Dios aman, todas las cosas les ayudan á bien, es á saber, á los que conforme al propósito son llamados. §29 Porque á los que antes conoció, también predestinó para que fuesen hechos conformes á la imagen de su Hijo, para que él sea el primogénito entre muchos hermanos; §30 Y á los que predestinó, á éstos también llamó; y á los que llamó, á éstos también justificó; y á los que justificó, á éstos también glorificó.
+§28 Y sabemos que á los que á Dios aman, todas las cosas les ayudan á bien, es á saber, á los que conforme al propósito son llamados. 
+§29 Porque á los que antes conoció, también predestinó para que fuesen hechos conformes á la imagen de su Hijo, para que él sea el primogénito entre muchos hermanos; 
+§30 Y á los que predestinó, á éstos también llamó; y á los que llamó, á éstos también justificó; y á los que justificó, á éstos también glorificó.
 
 ## Por tanto, nuestro estado de salvación está divinamente asegurado contra todos los poderes y nuestra certeza de fe y seguridad de la salvación está justificada
-§31 ¿Pues qué diremos á esto? Si Dios por nosotros, ¿quién contra nosotros? §32 El que aun á su propio Hijo no perdonó, antes le entregó por todos nosotros, ¿cómo no nos dará también con él todas las cosas? §33 ¿Quién acusará á los escogidos de Dios? Dios es el que justifica. §34 ¿Quién es el que condenará? Cristo es el que murió; más aún, el que también resucitó, quien además está á la diestra de Dios, el que también intercede por nosotros.
+§31 ¿Pues qué diremos á esto? Si Dios por nosotros, ¿quién contra nosotros? 
+§32 El que aun á su propio Hijo no perdonó, antes le entregó por todos nosotros, ¿cómo no nos dará también con él todas las cosas? 
+§33 ¿Quién acusará á los escogidos de Dios? Dios es el que justifica. 
+§34 ¿Quién es el que condenará? Cristo es el que murió; más aún, el que también resucitó, quien además está á la diestra de Dios, el que también intercede por nosotros.
 
-§35 ¿Quién nos apartará del amor de Cristo? tribulación? ó angustia? ó persecución? ó hambre? ó desnudez? ó peligro? ó cuchillo? §36 Como está escrito: Por causa de ti somos muertos todo el tiempo: somos estimados como ovejas de matadero. §37 Antes, en todas estas cosas hacemos más que vencer por medio de aquel que nos amó. §38 Por lo cual estoy cierto que ni la muerte, ni la vida, ni ángeles, ni principados, ni potestades, ni lo presente, ni lo por venir, §39 Ni lo alto, ni lo bajo, ni ninguna criatura nos podrá apartar del amor de Dios, que es en Cristo Jesús Señor nuestro. 
+§35 ¿Quién nos apartará del amor de Cristo? tribulación? ó angustia? ó persecución? ó hambre? ó desnudez? ó peligro? ó cuchillo? 
+§36 Como está escrito: Por causa de ti somos muertos todo el tiempo: somos estimados como ovejas de matadero. 
+§37 Antes, en todas estas cosas hacemos más que vencer por medio de aquel que nos amó. 
+§38 Por lo cual estoy cierto que ni la muerte, ni la vida, ni ángeles, ni principados, ni potestades, ni lo presente, ni lo por venir, 
+§39 Ni lo alto, ni lo bajo, ni ninguna criatura nos podrá apartar del amor de Dios, que es en Cristo Jesús Señor nuestro. 
 
 # 9 
 ## Introducción: El profundo dolor del apóstol por la exclusión temporal de su pueblo de la salvación
-§1 Verdad digo en Cristo, no miento, dándome testimonio mi conciencia en el Espíritu Santo, §2 Que tengo gran tristeza y continuo dolor en mi corazón. §3 Porque deseara yo mismo ser apartado de Cristo por mis hermanos, los que son mis parientes según la carne; §4 Que son israelitas, de los cuales es la adopción, y la gloria, y el pacto, y la data de la ley, y el culto, y las promesas; §5 Cuyos son los padres, y de los cuales es Cristo según la carne, el cual es Dios sobre todas las cosas, bendito por los siglos. Amén.
+§1 Verdad digo en Cristo, no miento, dándome testimonio mi conciencia en el Espíritu Santo, 
+§2 Que tengo gran tristeza y continuo dolor en mi corazón. 
+§3 Porque deseara yo mismo ser apartado de Cristo por mis hermanos, los que son mis parientes según la carne; 
+§4 Que son israelitas, de los cuales es la adopción, y la gloria, y el pacto, y la data de la ley, y el culto, y las promesas; 
+§5 Cuyos son los padres, y de los cuales es Cristo según la carne, el cual es Dios sobre todas las cosas, bendito por los siglos. Amén.
 
 ## Las promesas de Dios a Israel son inquebrantables, pero no se aplican a todo el cuerpo, sino solo a los descendientes espirituales de Abraham
-§6 No empero que la palabra de Dios haya faltado: porque no todos los que son de Israel son Israelitas; §7 Ni por ser simiente de Abraham, son todos hijos; mas: En Isaac te será llamada simiente. §8 Quiere decir: No los que son hijos de la carne, éstos son los hijos de Dios; mas los que son hijos de la promesa, son contados en la generación. §9 Porque la palabra de la promesa es esta: Como en este tiempo vendré, y tendrá Sara un hijo. §10 Y no sólo esto; mas también Rebeca concibiendo de uno, de Isaac nuestro padre, §11 (Porque no siendo aún nacidos, ni habiendo hecho aún ni bien ni mal, para que el propósito de Dios conforme á la elección, no por las obras sino por el que llama, permaneciese;) §12 Le fué dicho que el mayor serviría al menor. §13 Como está escrito: A Jacob amé, mas á Esaú aborrecí.
+§6 No empero que la palabra de Dios haya faltado: porque no todos los que son de Israel son Israelitas; 
+§7 Ni por ser simiente de Abraham, son todos hijos; mas: En Isaac te será llamada simiente. 
+§8 Quiere decir: No los que son hijos de la carne, éstos son los hijos de Dios; mas los que son hijos de la promesa, son contados en la generación. 
+§9 Porque la palabra de la promesa es esta: Como en este tiempo vendré, y tendrá Sara un hijo. 
+§10 Y no sólo esto; mas también Rebeca concibiendo de uno, de Isaac nuestro padre, 
+§11 (Porque no siendo aún nacidos, ni habiendo hecho aún ni bien ni mal, para que el propósito de Dios conforme á la elección, no por las obras sino por el que llama, permaneciese;) 
+§12 Le fué dicho que el mayor serviría al menor. 
+§13 Como está escrito: A Jacob amé, mas á Esaú aborrecí.
 
 ## La elección para la salvación es obra gratuita de la gracia de Dios; la negación de la salvación y la gracia no permite al hombre pelear con Dios
-§14 ¿Pues qué diremos? ¿Que hay injusticia en Dios? En ninguna manera. §15 Mas á Moisés dice: Tendré misericordia del que tendré misericordia, y me compadeceré del que me compadeceré. §16 Así que no es del que quiere, ni del que corre, sino de Dios que tiene misericordia. §17 Porque la Escritura dice de Faraón: Que para esto mismo te he levantado, para mostrar en ti mi potencia, y que mi nombre sea anunciado por toda la tierra. §18 De manera que del que quiere tiene misericordia; y al que quiere, endurece.
+§14 ¿Pues qué diremos? ¿Que hay injusticia en Dios? En ninguna manera. 
+§15 Mas á Moisés dice: Tendré misericordia del que tendré misericordia, y me compadeceré del que me compadeceré. 
+§16 Así que no es del que quiere, ni del que corre, sino de Dios que tiene misericordia. 
+§17 Porque la Escritura dice de Faraón: Que para esto mismo te he levantado, para mostrar en ti mi potencia, y que mi nombre sea anunciado por toda la tierra. 
+§18 De manera que del que quiere tiene misericordia; y al que quiere, endurece.
 
-§19 Me dirás pues: ¿Por qué, pues, se enoja? porque ¿quién resistirá á su voluntad? §20 Mas antes, oh hombre, ¿quién eres tú, para que alterques con Dios? Dirá el vaso de barro al que le labró: ¿Por qué me has hecho tal? §21 ¿O no tiene potestad el alfarero para hacer de la misma masa un vaso para honra, y otro para vergüenza? §22 ¿Y qué, si Dios, queriendo mostrar la ira y hacer notoria su potencia, soportó con mucha mansedumbre los vasos de ira preparados para muerte, §23 Y para hacer notorias las riquezas de su gloria, mostrólas para con los vasos de misericordia que él ha preparado para gloria; §24 Los cuales también ha llamado, es á saber, á nosotros, no sólo de los Judíos, mas también de los Gentiles? §25 Como también en Oseas dice: Llamaré al que no era mi pueblo, pueblo mío; y á la no amada, amada. §26 Y será, que en el lugar donde les fué dicho: Vosotros no sois pueblo mío: allí serán llamados hijos del Dios viviente.
+§19 Me dirás pues: ¿Por qué, pues, se enoja? porque ¿quién resistirá á su voluntad? 
+§20 Mas antes, oh hombre, ¿quién eres tú, para que alterques con Dios? Dirá el vaso de barro al que le labró: ¿Por qué me has hecho tal? 
+§21 ¿O no tiene potestad el alfarero para hacer de la misma masa un vaso para honra, y otro para vergüenza? 
+§22 ¿Y qué, si Dios, queriendo mostrar la ira y hacer notoria su potencia, soportó con mucha mansedumbre los vasos de ira preparados para muerte, 
+§23 Y para hacer notorias las riquezas de su gloria, mostrólas para con los vasos de misericordia que él ha preparado para gloria; 
+§24 Los cuales también ha llamado, es á saber, á nosotros, no sólo de los Judíos, mas también de los Gentiles? 
+§25 Como también en Oseas dice: Llamaré al que no era mi pueblo, pueblo mío; y á la no amada, amada. 
+§26 Y será, que en el lugar donde les fué dicho: Vosotros no sois pueblo mío: allí serán llamados hijos del Dios viviente.
 
-§27 También Isaías clama tocante á Israel: Si fuere el número de los hijos de Israel como la arena de la mar, las reliquias serán salvas: §28 Porque palabra consumadora y abreviadora en justicia, porque palabra abreviada, hará el Señor sobre la tierra.
+§27 También Isaías clama tocante á Israel: Si fuere el número de los hijos de Israel como la arena de la mar, las reliquias serán salvas: 
+§28 Porque palabra consumadora y abreviadora en justicia, porque palabra abreviada, hará el Señor sobre la tierra.
 
 §29 Y como antes dijo Isaías: Si el Señor de los ejércitos no nos hubiera dejado simiente, como Sodoma habríamos venido á ser, y á Gomorra fuéramos semejantes.
 
 ## La culpa de los judíos consistió en el rechazo de la justicia de la fe y en la persecución excesiva de la justicia de las obras
 §30 ¿Pues qué diremos? Que los Gentiles que no seguían justicia, han alcanzado la justicia, es á saber, la justicia que es por la fe;
 
-§31 Mas Israel que seguía la ley de justicia, no ha llegado á la ley de justicia. §32 ¿Por qué? Porque la seguían no por fe, mas como por las obras de la ley: por lo cual tropezaron en la piedra de tropiezo, §33 Como está escrito: He aquí pongo en Sión piedra de tropiezo, y piedra de caída; y aquel que creyere en ella, no será avergonzado. 
+§31 Mas Israel que seguía la ley de justicia, no ha llegado á la ley de justicia. 
+§32 ¿Por qué? Porque la seguían no por fe, mas como por las obras de la ley: por lo cual tropezaron en la piedra de tropiezo, 
+§33 Como está escrito: He aquí pongo en Sión piedra de tropiezo, y piedra de caída; y aquel que creyere en ella, no será avergonzado. 
 
 # 10 
-§1 Hermanos, ciertamente la voluntad de mi corazón y mi oración á Dios sobre Israel, es para salud. §2 Porque yo les doy testimonio que tienen celo de Dios, mas no conforme á ciencia. §3 Porque ignorando la justicia de Dios, y procurando establecer la suya propia, no se han sujetado á la justicia de Dios.
+§1 Hermanos, ciertamente la voluntad de mi corazón y mi oración á Dios sobre Israel, es para salud. 
+§2 Porque yo les doy testimonio que tienen celo de Dios, mas no conforme á ciencia. 
+§3 Porque ignorando la justicia de Dios, y procurando establecer la suya propia, no se han sujetado á la justicia de Dios.
 
 ## La falta de Israel es aún más grave ya que Dios no ha descuidado nada para llevar a Israel a la justicia de la fe desde la época de Moisés
 §4 Porque el fin de la ley es Cristo, para justicia á todo aquel que cree.
 
-§5 Porque Moisés describe la justicia que es por la ley: Que el hombre que hiciere estas cosas, vivirá por ellas. §6 Mas la justicia que es por la fe dice así: No digas en tu corazón: ¿Quién subirá al cielo? (esto es, para traer abajo á Cristo:) §7 O, ¿quién descenderá al abismo? (esto es, para volver á traer á Cristo de los muertos.) §8 Mas ¿qué dice? Cercana está la palabra, en tu boca y en tu corazón. Esta es la palabra de fe, la cual predicamos: §9 Que si confesares con tu boca al Señor Jesús, y creyeres en tu corazón que Dios le levantó de los muertos, serás salvo. §10 Porque con el corazón se cree para justicia; mas con la boca se hace confesión para salud. §11 Porque la Escritura dice: Todo aquel que en él creyere, no será avergonzado.
+§5 Porque Moisés describe la justicia que es por la ley: Que el hombre que hiciere estas cosas, vivirá por ellas. 
+§6 Mas la justicia que es por la fe dice así: No digas en tu corazón: ¿Quién subirá al cielo? (esto es, para traer abajo á Cristo:) 
+§7 O, ¿quién descenderá al abismo? (esto es, para volver á traer á Cristo de los muertos.) 
+§8 Mas ¿qué dice? Cercana está la palabra, en tu boca y en tu corazón. Esta es la palabra de fe, la cual predicamos: 
+§9 Que si confesares con tu boca al Señor Jesús, y creyeres en tu corazón que Dios le levantó de los muertos, serás salvo. 
+§10 Porque con el corazón se cree para justicia; mas con la boca se hace confesión para salud. 
+§11 Porque la Escritura dice: Todo aquel que en él creyere, no será avergonzado.
 
-§12 Porque no hay diferencia de Judío y de Griego: porque el mismo que es Señor de todos, rico es para con todos los que le invocan: §13 Porque todo aquel que invocare el nombre del Señor, será salvo. §14 ¿Cómo, pues invocarán á aquel en el cual no han creído? ¿y cómo creerán á aquel de quien no han oído? ¿y cómo oirán sin haber quien les predique? §15 ¿Y cómo predicarán si no fueren enviados? Como está escrito: ¡Cuán hermosos son los pies de los que anuncian el evangelio de la paz, de los que anuncian el evangelio de los bienes!
+§12 Porque no hay diferencia de Judío y de Griego: porque el mismo que es Señor de todos, rico es para con todos los que le invocan: 
+§13 Porque todo aquel que invocare el nombre del Señor, será salvo. 
+§14 ¿Cómo, pues invocarán á aquel en el cual no han creído? ¿y cómo creerán á aquel de quien no han oído? ¿y cómo oirán sin haber quien les predique? 
+§15 ¿Y cómo predicarán si no fueren enviados? Como está escrito: ¡Cuán hermosos son los pies de los que anuncian el evangelio de la paz, de los que anuncian el evangelio de los bienes!
 
 ## La inexcusabilidad de la parte incrédula de Israel, que ha rechazado la salvación que también le fue ofrecida
-§16 Mas no todos obedecen al evangelio; pues Isaías dice: Señor, ¿quién ha creído á nuestro anuncio? §17 Luego la fe es por el oir; y el oir por la palabra de Dios. §18 Mas digo: ¿No han oído? Antes bien, por toda la tierra ha salido la fama de ellos, y hasta los cabos de la redondez de la tierra las palabras de ellos.
+§16 Mas no todos obedecen al evangelio; pues Isaías dice: Señor, ¿quién ha creído á nuestro anuncio? 
+§17 Luego la fe es por el oir; y el oir por la palabra de Dios. 
+§18 Mas digo: ¿No han oído? Antes bien, por toda la tierra ha salido la fama de ellos, y hasta los cabos de la redondez de la tierra las palabras de ellos.
 
 §19 Mas digo: ¿No ha conocido esto Israel? Primeramente Moisés dice: Yo os provocaré á celos con gente que no es mía; con gente insensata os provocaré á ira.
 
@@ -284,75 +397,151 @@
 
 # 11 
 ## La mayor parte de los judíos es terca y rechazada por Dios, pero incluso ahora una pequeña parte está destinada a la salvación a través de la gracia de Dios
-§1 Digo pues: ¿Ha desechado Dios á su pueblo? En ninguna manera. Porque también yo soy Israelita, de la simiente de Abraham, de la tribu de Benjamín. §2 No ha desechado Dios á su pueblo, al cual antes conoció. ¿O no sabéis qué dice de Elías la Escritura? cómo hablando con Dios contra Israel dice: §3 Señor, á tus profetas han muerto, y tus altares han derruído; y yo he quedado solo, y procuran matarme. §4 Mas ¿qué le dice la divina respuesta? He dejado para mí siete mil hombres, que no han doblado la rodilla delante de Baal. §5 Así también, aun en este tiempo han quedado reliquias por la elección de gracia. §6 Y si por gracia, luego no por las obras; de otra manera la gracia ya no es gracia. Y si por las obras, ya no es gracia; de otra manera la obra ya no es obra.
+§1 Digo pues: ¿Ha desechado Dios á su pueblo? En ninguna manera. Porque también yo soy Israelita, de la simiente de Abraham, de la tribu de Benjamín. 
+§2 No ha desechado Dios á su pueblo, al cual antes conoció. ¿O no sabéis qué dice de Elías la Escritura? cómo hablando con Dios contra Israel dice: 
+§3 Señor, á tus profetas han muerto, y tus altares han derruído; y yo he quedado solo, y procuran matarme. 
+§4 Mas ¿qué le dice la divina respuesta? He dejado para mí siete mil hombres, que no han doblado la rodilla delante de Baal. 
+§5 Así también, aun en este tiempo han quedado reliquias por la elección de gracia. 
+§6 Y si por gracia, luego no por las obras; de otra manera la gracia ya no es gracia. Y si por las obras, ya no es gracia; de otra manera la obra ya no es obra.
 
-§7 ¿Qué pues? Lo que buscaba Israel aquello no ha alcanzado; mas la elección lo ha alcanzado: y los demás fueron endurecidos; §8 Como está escrito: Dióles Dios espíritu de remordimiento, ojos con que no vean, y oídos con que no oigan, hasta el día de hoy.
+§7 ¿Qué pues? Lo que buscaba Israel aquello no ha alcanzado; mas la elección lo ha alcanzado: y los demás fueron endurecidos; 
+§8 Como está escrito: Dióles Dios espíritu de remordimiento, ojos con que no vean, y oídos con que no oigan, hasta el día de hoy.
 
-§9 Y David dice: Séales vuelta su mesa en lazo, y en red, y en tropezadero, y en paga: §10 Sus ojos sean obscurecidos para que no vean, y agóbiales siempre el espinazo.
+§9 Y David dice: Séales vuelta su mesa en lazo, y en red, y en tropezadero, y en paga: 
+§10 Sus ojos sean obscurecidos para que no vean, y agóbiales siempre el espinazo.
 
 ## El propósito divino de la salvación en el llamado de los gentiles era vencer la incredulidad de los judíos estimulándolos a emularlos; su rechazo no es definitivo
-§11 Digo pues: ¿Han tropezado para que cayesen? En ninguna manera; mas por el tropiezo de ellos vino la salud á los Gentiles, para que fuesen provocados á celos. §12 Y si la falta de ellos es la riqueza del mundo, y el menoscabo de ellos la riqueza de los Gentiles, ¿cuánto más el henchimiento de ellos?
+§11 Digo pues: ¿Han tropezado para que cayesen? En ninguna manera; mas por el tropiezo de ellos vino la salud á los Gentiles, para que fuesen provocados á celos. 
+§12 Y si la falta de ellos es la riqueza del mundo, y el menoscabo de ellos la riqueza de los Gentiles, ¿cuánto más el henchimiento de ellos?
 
-§13 Porque á vosotros hablo, Gentiles. Por cuanto pues, yo soy apóstol de los Gentiles, mi ministerio honro, §14 Por si en alguna manera provocase á celos á mi carne, é hiciese salvos á algunos de ellos. §15 Porque si el extrañamiento de ellos es la reconciliación del mundo, ¿qué será el recibimiento de ellos, sino vida de los muertos?
+§13 Porque á vosotros hablo, Gentiles. Por cuanto pues, yo soy apóstol de los Gentiles, mi ministerio honro, 
+§14 Por si en alguna manera provocase á celos á mi carne, é hiciese salvos á algunos de ellos. 
+§15 Porque si el extrañamiento de ellos es la reconciliación del mundo, ¿qué será el recibimiento de ellos, sino vida de los muertos?
 
-§16 Y si el primer fruto es santo, también lo es el todo, y si la raíz es santa, también lo son las ramas. §17 Que si algunas de las ramas fueron quebradas, y tú, siendo acebuche, has sido ingerido en lugar de ellas, y has sido hecho participante de la raíz y de la grosura de la oliva; §18 No te jactes contra las ramas; y si te jactas, sabe que no sustentas tú á la raíz, sino la raíz á ti. §19 Pues las ramas, dirás, fueron quebradas para que yo fuese ingerido. §20 Bien: por su incredulidad fueron quebradas, mas tú por la fe estás en pie. No te ensoberbezcas, antes teme, §21 Que si Dios no perdonó á las ramas naturales, á ti tampoco no perdone. §22 Mira, pues, la bondad y la severidad de Dios: la severidad ciertamente en los que cayeron; mas la bondad para contigo, si permanecieres en la bondad; pues de otra manera tú también serás cortado. §23 Y aun ellos, si no permanecieren en incredulidad, serán ingeridos; que poderoso es Dios para volverlos á ingerir. §24 Porque si tú eres cortado del natural acebuche, y contra natura fuiste ingerido en la buena oliva, ¿cuánto más éstos, que son las ramas naturales, serán ingeridos en su oliva?
+§16 Y si el primer fruto es santo, también lo es el todo, y si la raíz es santa, también lo son las ramas. 
+§17 Que si algunas de las ramas fueron quebradas, y tú, siendo acebuche, has sido ingerido en lugar de ellas, y has sido hecho participante de la raíz y de la grosura de la oliva; 
+§18 No te jactes contra las ramas; y si te jactas, sabe que no sustentas tú á la raíz, sino la raíz á ti. 
+§19 Pues las ramas, dirás, fueron quebradas para que yo fuese ingerido. 
+§20 Bien: por su incredulidad fueron quebradas, mas tú por la fe estás en pie. No te ensoberbezcas, antes teme, 
+§21 Que si Dios no perdonó á las ramas naturales, á ti tampoco no perdone. 
+§22 Mira, pues, la bondad y la severidad de Dios: la severidad ciertamente en los que cayeron; mas la bondad para contigo, si permanecieres en la bondad; pues de otra manera tú también serás cortado. 
+§23 Y aun ellos, si no permanecieren en incredulidad, serán ingeridos; que poderoso es Dios para volverlos á ingerir. 
+§24 Porque si tú eres cortado del natural acebuche, y contra natura fuiste ingerido en la buena oliva, ¿cuánto más éstos, que son las ramas naturales, serán ingeridos en su oliva?
 
 ## Todo el resto del pueblo de Israel eventualmente llegará a la fe después de que las elecciones gentiles se conviertan, y todo será usado para la justificación y glorificación de Dios
-§25 Porque no quiero, hermanos, que ignoréis este misterio, para que no seáis acerca de vosotros mismos arrogantes: que el endurecimiento en parte ha acontecido en Israel, hasta que haya entrado la plenitud de los Gentiles; §26 Y luego todo Israel será salvo; como está escrito: Vendrá de Sión el Libertador, que quitará de Jacob la impiedad; §27 Y este es mi pacto con ellos, cuando quitare su pecados.
+§25 Porque no quiero, hermanos, que ignoréis este misterio, para que no seáis acerca de vosotros mismos arrogantes: que el endurecimiento en parte ha acontecido en Israel, hasta que haya entrado la plenitud de los Gentiles; 
+§26 Y luego todo Israel será salvo; como está escrito: Vendrá de Sión el Libertador, que quitará de Jacob la impiedad; 
+§27 Y este es mi pacto con ellos, cuando quitare su pecados.
 
-§28 Así que, cuanto al evangelio, son enemigos por causa de vosotros: mas cuanto á la elección, son muy amados por causa de los padres. §29 Porque sin arrepentimiento son las mercedes y la vocación de Dios. §30 Porque como también vosotros en algún tiempo no creísteis á Dios, mas ahora habéis alcanzado misericordia por la incredulidad de ellos; §31 Así también éstos ahora no han creído, para que, por la misericordia para con vosotros, ellos también alcancen misericordia. §32 Porque Dios encerró á todos en incredulidad, para tener misericordia de todos.
+§28 Así que, cuanto al evangelio, son enemigos por causa de vosotros: mas cuanto á la elección, son muy amados por causa de los padres. 
+§29 Porque sin arrepentimiento son las mercedes y la vocación de Dios. 
+§30 Porque como también vosotros en algún tiempo no creísteis á Dios, mas ahora habéis alcanzado misericordia por la incredulidad de ellos; 
+§31 Así también éstos ahora no han creído, para que, por la misericordia para con vosotros, ellos también alcancen misericordia. 
+§32 Porque Dios encerró á todos en incredulidad, para tener misericordia de todos.
 
-§33 ¡Oh profundidad de las riquezas de la sabiduría y de la ciencia de Dios! ¡Cuán incomprensibles son sus juicios, é inescrutables sus caminos! §34 Porque ¿quién entendió la mente del Señor? ¿ó quién fué su consejero? §35 ¿O quién le dió á él primero, para que le sea pagado?
+§33 ¡Oh profundidad de las riquezas de la sabiduría y de la ciencia de Dios! ¡Cuán incomprensibles son sus juicios, é inescrutables sus caminos! 
+§34 Porque ¿quién entendió la mente del Señor? ¿ó quién fué su consejero? 
+§35 ¿O quién le dió á él primero, para que le sea pagado?
 
 §36 Porque de él, y por él, y en él, son todas las cosas. A él sea gloria por siglos. Amén. 
 
 # 12 
 ## Advertencia general como entrada: santificación de la vida personal a través de la entrega completa a Dios
-§1 Así que, hermanos, os ruego por las misericordias de Dios, que presentéis vuestros cuerpos en sacrificio vivo, santo, agradable á Dios, que es vuestro racional culto. §2 Y no os conforméis á este siglo; mas reformaos por la renovación de vuestro entendimiento, para que experimentéis cuál sea la buena voluntad de Dios, agradable y perfecta.
+§1 Así que, hermanos, os ruego por las misericordias de Dios, que presentéis vuestros cuerpos en sacrificio vivo, santo, agradable á Dios, que es vuestro racional culto. 
+§2 Y no os conforméis á este siglo; mas reformaos por la renovación de vuestro entendimiento, para que experimentéis cuál sea la buena voluntad de Dios, agradable y perfecta.
 
 ## Exhortación a la humildad del individuo y al uso fiel de los dones recibidos al servicio de la comunidad
-§3 Digo pues por la gracia que me es dada, á cada cual que está entre vosotros, que no tenga más alto concepto de sí que el que debe tener, sino que piense de sí con templanza, conforme á la medida de fe que Dios repartió á cada uno. §4 Porque de la manera que en un cuerpo tenemos muchos miembros, empero todos los miembros no tienen la misma operación; §5 Así muchos somos un cuerpo en Cristo, mas todos miembros los unos de los otros. §6 De manera que, teniendo diferentes dones según la gracia que nos es dada, si el de profecía, úsese conforme á la medida de la fe; §7 O si ministerio, en servir; ó el que enseña, en doctrina; §8 El que exhorta, en exhortar; el que reparte, hágalo en simplicidad; el que preside, con solicitud; el que hace misericordia, con alegría.
+§3 Digo pues por la gracia que me es dada, á cada cual que está entre vosotros, que no tenga más alto concepto de sí que el que debe tener, sino que piense de sí con templanza, conforme á la medida de fe que Dios repartió á cada uno. 
+§4 Porque de la manera que en un cuerpo tenemos muchos miembros, empero todos los miembros no tienen la misma operación; 
+§5 Así muchos somos un cuerpo en Cristo, mas todos miembros los unos de los otros. 
+§6 De manera que, teniendo diferentes dones según la gracia que nos es dada, si el de profecía, úsese conforme á la medida de la fe; 
+§7 O si ministerio, en servir; ó el que enseña, en doctrina; 
+§8 El que exhorta, en exhortar; el que reparte, hágalo en simplicidad; el que preside, con solicitud; el que hace misericordia, con alegría.
 
 ## Exhortación a amar fraternalmente y a ejercitar sentimientos cristianos contra amigos y enemigos
-§9 El amor sea sin fingimiento: aborreciendo lo malo, llegándoos á lo bueno; §10 Amándoos los unos á los otros con caridad fraternal; previniéndoos con honra los unos á los otros; §11 En el cuidado no perezosos; ardientes en espíritu; sirviendo al Señor; §12 Gozosos en la esperanza; sufridos en la tribulación; constantes en la oración; §13 Comunicando á las necesidades de los santos; siguiendo la hospitalidad.
+§9 El amor sea sin fingimiento: aborreciendo lo malo, llegándoos á lo bueno; 
+§10 Amándoos los unos á los otros con caridad fraternal; previniéndoos con honra los unos á los otros; 
+§11 En el cuidado no perezosos; ardientes en espíritu; sirviendo al Señor; 
+§12 Gozosos en la esperanza; sufridos en la tribulación; constantes en la oración; 
+§13 Comunicando á las necesidades de los santos; siguiendo la hospitalidad.
 
-§14 Bendecid á los que os persiguen: bendecid, y no maldigáis. §15 Gozaos con los que se gozan: llorad con los que lloran. §16 Unánimes entre vosotros: no altivos, mas acomodándoos á los humildes. No seáis sabios en vuestra opinión. §17 No paguéis á nadie mal por mal; procurad lo bueno delante de todos los hombres. §18 Si se puede hacer, cuanto está en vosotros, tened paz con todos los hombres. §19 No os venguéis vosotros mismos, amados míos; antes dad lugar á la ira; porque escrito está: Mía es la venganza: yo pagaré, dice el Señor. §20 Así que, si tu enemigo tuviere hambre, dale de comer; si tuviere sed, dale de beber: que haciendo esto, ascuas de fuego amontonas sobre su cabeza.
+§14 Bendecid á los que os persiguen: bendecid, y no maldigáis. 
+§15 Gozaos con los que se gozan: llorad con los que lloran. 
+§16 Unánimes entre vosotros: no altivos, mas acomodándoos á los humildes. No seáis sabios en vuestra opinión. 
+§17 No paguéis á nadie mal por mal; procurad lo bueno delante de todos los hombres. 
+§18 Si se puede hacer, cuanto está en vosotros, tened paz con todos los hombres. 
+§19 No os venguéis vosotros mismos, amados míos; antes dad lugar á la ira; porque escrito está: Mía es la venganza: yo pagaré, dice el Señor. 
+§20 Así que, si tu enemigo tuviere hambre, dale de comer; si tuviere sed, dale de beber: que haciendo esto, ascuas de fuego amontonas sobre su cabeza.
 
 §21 No seas vencido de lo malo; mas vence con el bien el mal. 
 
 # 13 
 ## Exhortación a obedecer a las autoridades designadas por Dios
-§1 Toda alma se someta á las potestades superiores; porque no hay potestad sino de Dios; y las que son, de Dios son ordenadas. §2 Así que, el que se opone á la potestad, á la ordenación de Dios resiste: y los que resisten, ellos mismos ganan condenación para sí. §3 Porque los magistrados no son para temor al que bien hace, sino al malo. ¿Quieres pues no temer la potestad? haz lo bueno, y tendrás alabanza de ella; §4 Porque es ministro de Dios para tu bien. Mas si hicieres lo malo, teme: porque no en vano lleva el cuchillo; porque es ministro de Dios, vengador para castigo al que hace lo malo. §5 Por lo cual es necesario que le estéis sujetos, no solamente por la ira, mas aun por la conciencia. §6 Porque por esto pagáis también los tributos; porque son ministros de Dios que sirven á esto mismo.
+§1 Toda alma se someta á las potestades superiores; porque no hay potestad sino de Dios; y las que son, de Dios son ordenadas. 
+§2 Así que, el que se opone á la potestad, á la ordenación de Dios resiste: y los que resisten, ellos mismos ganan condenación para sí. 
+§3 Porque los magistrados no son para temor al que bien hace, sino al malo. ¿Quieres pues no temer la potestad? haz lo bueno, y tendrás alabanza de ella; 
+§4 Porque es ministro de Dios para tu bien. Mas si hicieres lo malo, teme: porque no en vano lleva el cuchillo; porque es ministro de Dios, vengador para castigo al que hace lo malo. 
+§5 Por lo cual es necesario que le estéis sujetos, no solamente por la ira, mas aun por la conciencia. 
+§6 Porque por esto pagáis también los tributos; porque son ministros de Dios que sirven á esto mismo.
 
 ## Exhortaciones al cumplimiento integral de los deberes, especialmente a la caridad como cumplimiento de la ley
 §7 Pagad á todos lo que debéis: al que tributo, tributo; al que pecho, pecho; al que temor, temor; al que honra, honra.
 
-§8 No debáis á nadie nada, sino amaros unos á otros; porque el que ama al prójimo, cumplió la ley. §9 Porque: No adulterarás; no matarás; no hurtarás; no dirás falso testimonio; no codiciarás; y si hay algún otro mandamiento, en esta sentencia se comprende sumariamente: Amarás á tu prójimo como á ti mismo. §10 La caridad no hace mal al prójimo: así que, el cumplimento de la ley es la caridad.
+§8 No debáis á nadie nada, sino amaros unos á otros; porque el que ama al prójimo, cumplió la ley. 
+§9 Porque: No adulterarás; no matarás; no hurtarás; no dirás falso testimonio; no codiciarás; y si hay algún otro mandamiento, en esta sentencia se comprende sumariamente: Amarás á tu prójimo como á ti mismo. 
+§10 La caridad no hace mal al prójimo: así que, el cumplimento de la ley es la caridad.
 
 ## El fin cercano del mundo advierte caminar en luz y santificar la vida personal
-§11 Y esto, conociendo el tiempo, que es ya hora de levantarnos del sueño; porque ahora nos está más cerca nuestra salud que cuando creímos. §12 La noche ha pasado, y ha llegado el día: echemos, pues, las obras de las tinieblas, y vistámonos las armas de luz. §13 Andemos como de día, honestamente: no en glotonerías y borracheras, no en lechos y disoluciones, no en pedencias y envidia: §14 Mas vestíos del Señor Jesucristo, y no hagáis caso de la carne en sus deseos. 
+§11 Y esto, conociendo el tiempo, que es ya hora de levantarnos del sueño; porque ahora nos está más cerca nuestra salud que cuando creímos. 
+§12 La noche ha pasado, y ha llegado el día: echemos, pues, las obras de las tinieblas, y vistámonos las armas de luz. 
+§13 Andemos como de día, honestamente: no en glotonerías y borracheras, no en lechos y disoluciones, no en pedencias y envidia: 
+§14 Mas vestíos del Señor Jesucristo, y no hagáis caso de la carne en sus deseos. 
 
 # 14 
 ## Juicio sobre el tema que conmueve a la comunidad y advierte contra la condena sin amor del modo de vida externo del prójimo
-§1 Recibid al flaco en la fe, pero no para contiendas de disputas. §2 Porque uno cree que se ha de comer de todas cosas: otro que es débil, come legumbres. §3 El que come, no menosprecie al que no come: y el que no come, no juzgue al que come; porque Dios le ha levantado. §4 ¿Tú quién eres que juzgas al siervo ajeno? para su señor está en pie, ó cae: mas se afirmará; que poderoso es el Señor para afirmarle.
+§1 Recibid al flaco en la fe, pero no para contiendas de disputas. 
+§2 Porque uno cree que se ha de comer de todas cosas: otro que es débil, come legumbres. 
+§3 El que come, no menosprecie al que no come: y el que no come, no juzgue al que come; porque Dios le ha levantado. 
+§4 ¿Tú quién eres que juzgas al siervo ajeno? para su señor está en pie, ó cae: mas se afirmará; que poderoso es el Señor para afirmarle.
 
-§5 Uno hace diferencia entre día y día; otro juzga iguales todos los días. Cada uno esté asegurado en su ánimo. §6 El que hace caso del día, hácelo para el Señor: y el que no hace caso del día, no lo hace para el Señor. El que come, come para el Señor, porque da gracias á Dios; y el que no come, no come para el Señor, y da gracias á Dios. §7 Porque ninguno de nosotros vive para sí, y ninguno muere para sí. §8 Que si vivimos, para el Señor vivimos; y si morimos, para el Señor morimos. Así que, ó que vivamos, ó que muramos, del Señor somos. §9 Porque Cristo para esto murió, y resucitó, y volvió á vivir, para ser Señor así de los muertos como de los que viven.
+§5 Uno hace diferencia entre día y día; otro juzga iguales todos los días. Cada uno esté asegurado en su ánimo. 
+§6 El que hace caso del día, hácelo para el Señor: y el que no hace caso del día, no lo hace para el Señor. El que come, come para el Señor, porque da gracias á Dios; y el que no come, no come para el Señor, y da gracias á Dios. 
+§7 Porque ninguno de nosotros vive para sí, y ninguno muere para sí. 
+§8 Que si vivimos, para el Señor vivimos; y si morimos, para el Señor morimos. Así que, ó que vivamos, ó que muramos, del Señor somos. 
+§9 Porque Cristo para esto murió, y resucitó, y volvió á vivir, para ser Señor así de los muertos como de los que viven.
 
-§10 Mas tú ¿por qué juzgas á tu hermano? ó tú también, ¿por qué menosprecias á tu hermano? porque todos hemos de estar ante el tribunal de Cristo. §11 Porque escrito está: Vivo yo, dice el Señor, que á mí se doblará toda rodilla, y toda lengua confesará á Dios.
+§10 Mas tú ¿por qué juzgas á tu hermano? ó tú también, ¿por qué menosprecias á tu hermano? porque todos hemos de estar ante el tribunal de Cristo. 
+§11 Porque escrito está: Vivo yo, dice el Señor, que á mí se doblará toda rodilla, y toda lengua confesará á Dios.
 
 §12 De manera que, cada uno de nosotros dará á Dios razón de sí.
 
 ## Exhortación a los que tienen una fe fuerte a no ofender a los que tienen una fe débil y a esforzarse por tener una conciencia segura en todo lo que hacen
-§13 Así que, no juzguemos más los unos de los otros: antes bien juzgad de no poner tropiezo ó escándalo al hermano. §14 Yo sé, y confío en el Señor Jesús, que de suyo nada hay inmundo: mas á aquel que piensa alguna cosa ser inmunda, para él es inmunda. §15 Empero si por causa de la comida tu hermano es contristado, ya no andas conforme á la caridad. No arruines con tu comida á aquél por el cual Cristo murió. §16 No sea pues blasfemado vuestro bien: §17 Que el reino de Dios no es comida ni bebida, sino justicia y paz y gozo por el Espíritu Santo. §18 Porque el que en esto sirve á Cristo, agrada á Dios, y es acepto á los hombres. §19 Así que, sigamos lo que hace á la paz, y á la edificación de los unos á los otros. §20 No destruyas la obra de Dios por causa de la comida. Todas las cosas á la verdad son limpias: mas malo es al hombre que come con escándalo. §21 Bueno es no comer carne, ni beber vino, ni nada en que tu hermano tropiece, ó se ofenda, ó sea debilitado.
+§13 Así que, no juzguemos más los unos de los otros: antes bien juzgad de no poner tropiezo ó escándalo al hermano. 
+§14 Yo sé, y confío en el Señor Jesús, que de suyo nada hay inmundo: mas á aquel que piensa alguna cosa ser inmunda, para él es inmunda. 
+§15 Empero si por causa de la comida tu hermano es contristado, ya no andas conforme á la caridad. No arruines con tu comida á aquél por el cual Cristo murió. 
+§16 No sea pues blasfemado vuestro bien: 
+§17 Que el reino de Dios no es comida ni bebida, sino justicia y paz y gozo por el Espíritu Santo. 
+§18 Porque el que en esto sirve á Cristo, agrada á Dios, y es acepto á los hombres. 
+§19 Así que, sigamos lo que hace á la paz, y á la edificación de los unos á los otros. 
+§20 No destruyas la obra de Dios por causa de la comida. Todas las cosas á la verdad son limpias: mas malo es al hombre que come con escándalo. 
+§21 Bueno es no comer carne, ni beber vino, ni nada en que tu hermano tropiece, ó se ofenda, ó sea debilitado.
 
-§22 ¿Tienes tú fe? Tenla para contigo delante de Dios. Bienaventurado el que no se condena á sí mismo con lo que aprueba. §23 Mas el que hace diferencia, si comiere, es condenado, porque no comió por fe: y todo lo que no es de fe, es pecado. 
+§22 ¿Tienes tú fe? Tenla para contigo delante de Dios. Bienaventurado el que no se condena á sí mismo con lo que aprueba. 
+§23 Mas el que hace diferencia, si comiere, es condenado, porque no comió por fe: y todo lo que no es de fe, es pecado. 
 
 # 15 
 ## Exhortación a ser pacientes con los débiles y a la unidad de los cristianos basada en el ejemplo de Cristo
-§1 Así que, los que somos más firmes debemos sobrellevar las flaquezas de los flacos, y no agradarnos á nosotros mismos. §2 Cada uno de nosotros agrade á su prójimo en bien, á edificación. §3 Porque Cristo no se agradó á sí mismo; antes bien, como está escrito: Los vituperios de los que te vituperan, cayeron sobre mí. §4 Porque las cosas que antes fueron escritas, para nuestra enseñanza fueron escritas; para que por la paciencia, y por la consolación de las Escrituras, tengamos esperanza. §5 Mas el Dios de la paciencia y de la consolación os dé que entre vosotros seáis unánimes según Cristo Jesús; §6 Para que concordes, á una boca glorifiquéis al Dios y Padre de nuestro Señor Jesucristo.
+§1 Así que, los que somos más firmes debemos sobrellevar las flaquezas de los flacos, y no agradarnos á nosotros mismos. 
+§2 Cada uno de nosotros agrade á su prójimo en bien, á edificación. 
+§3 Porque Cristo no se agradó á sí mismo; antes bien, como está escrito: Los vituperios de los que te vituperan, cayeron sobre mí. 
+§4 Porque las cosas que antes fueron escritas, para nuestra enseñanza fueron escritas; para que por la paciencia, y por la consolación de las Escrituras, tengamos esperanza. 
+§5 Mas el Dios de la paciencia y de la consolación os dé que entre vosotros seáis unánimes según Cristo Jesús; 
+§6 Para que concordes, á una boca glorifiquéis al Dios y Padre de nuestro Señor Jesucristo.
 
 ## Un recordatorio para que ambas partes de la comunidad estén unidas y tengan una fe gozosa
-§7 Por tanto, sobrellevaos los unos á los otros, como también Cristo nos sobrellevó, para gloria de Dios. §8 Digo, pues, que Cristo Jesús fué hecho ministro de la circuncisión por la verdad de Dios, para confirmar las promesas hechas á los padres, §9 Y para que los Gentiles glorifiquen á Dios por la misericordia; como está escrito: Por tanto yo te confesaré entre los Gentiles, y cantaré á tu nombre.
+§7 Por tanto, sobrellevaos los unos á los otros, como también Cristo nos sobrellevó, para gloria de Dios. 
+§8 Digo, pues, que Cristo Jesús fué hecho ministro de la circuncisión por la verdad de Dios, para confirmar las promesas hechas á los padres, 
+§9 Y para que los Gentiles glorifiquen á Dios por la misericordia; como está escrito: Por tanto yo te confesaré entre los Gentiles, y cantaré á tu nombre.
 
 §10 Y otra vez dice: Alegraos, Gentiles, con su pueblo.
 
@@ -363,22 +552,62 @@
 §13 Y el Dios de esperanza os llene de todo gozo y paz creyendo, para que abundéis en esperanza por la virtud del Espíritu Santo.
 
 ## Revisión justificativa del apóstol de la carta y referencia a su oficio apostólico para los gentiles
-§14 Empero cierto estoy yo de vosotros, hermanos míos, que aun vosotros mismos estáis llenos de bondad, llenos de todo conocimiento, de tal manera que podáis amonestaros los unos á los otros. §15 Mas os he escrito, hermanos, en parte resueltamente, como amonestándoos por la gracia que de Dios me es dada, §16 Para ser ministro de Jesucristo á los Gentiles, ministrando el evangelio de Dios, para que la ofrenda de los Gentiles sea agradable, santificada por el Espíritu Santo. §17 Tengo, pues, de qué gloriarme en Cristo Jesús en lo que mira á Dios. §18 Porque no osaría hablar alguna cosa que Cristo no haya hecho por mí para la obediencia de los Gentiles, con la palabra y con las obras, §19 Con potencia de milagros y prodigios, en virtud del Espíritu de Dios: de manera que desde Jerusalem, y por los alrededores hasta Ilírico, he llenado todo del evangelio de Cristo. §20 Y de esta manera me esforcé á predicar el evangelio, no donde antes Cristo fuese nombrado, por no edificar sobre ajeno fundamento: §21 Sino, como está escrito: A los que no fué anunciado de él, verán: y los que no oyeron, entenderán.
+§14 Empero cierto estoy yo de vosotros, hermanos míos, que aun vosotros mismos estáis llenos de bondad, llenos de todo conocimiento, de tal manera que podáis amonestaros los unos á los otros. 
+§15 Mas os he escrito, hermanos, en parte resueltamente, como amonestándoos por la gracia que de Dios me es dada, 
+§16 Para ser ministro de Jesucristo á los Gentiles, ministrando el evangelio de Dios, para que la ofrenda de los Gentiles sea agradable, santificada por el Espíritu Santo. 
+§17 Tengo, pues, de qué gloriarme en Cristo Jesús en lo que mira á Dios. 
+§18 Porque no osaría hablar alguna cosa que Cristo no haya hecho por mí para la obediencia de los Gentiles, con la palabra y con las obras, 
+§19 Con potencia de milagros y prodigios, en virtud del Espíritu de Dios: de manera que desde Jerusalem, y por los alrededores hasta Ilírico, he llenado todo del evangelio de Cristo. 
+§20 Y de esta manera me esforcé á predicar el evangelio, no donde antes Cristo fuese nombrado, por no edificar sobre ajeno fundamento: 
+§21 Sino, como está escrito: A los que no fué anunciado de él, verán: y los que no oyeron, entenderán.
 
 ## Anuncio de los próximos planes de viaje del apóstol
-§22 Por lo cual aun he sido impedido muchas veces de venir á vosotros. §23 Mas ahora no teniendo más lugar en estas regiones, y deseando ir á vosotros muchos años há, §24 Cuando partiere para España, iré á vosotros; porque espero que pasando os veré, y que seré llevado de vosotros allá, si empero antes hubiere gozado de vosotros. §25 Mas ahora parto para Jerusalem á ministrar á los santos. §26 Porque Macedonia y Acaya tuvieron por bien hacer una colecta para los pobres de los santos que están en Jerusalem. §27 Porque les pareció bueno, y son deudores á ellos: porque si los Gentiles han sido hechos participantes de sus bienes espirituales, deben también ellos servirles en los carnales. §28 Así que, cuando hubiere concluído esto, y les hubiere consignado este fruto, pasaré por vosotros á España. §29 Y sé que cuando llegue á vosotros, llegaré con abundancia de la bendición del evangelio de Cristo.
+§22 Por lo cual aun he sido impedido muchas veces de venir á vosotros. 
+§23 Mas ahora no teniendo más lugar en estas regiones, y deseando ir á vosotros muchos años há, 
+§24 Cuando partiere para España, iré á vosotros; porque espero que pasando os veré, y que seré llevado de vosotros allá, si empero antes hubiere gozado de vosotros. 
+§25 Mas ahora parto para Jerusalem á ministrar á los santos. 
+§26 Porque Macedonia y Acaya tuvieron por bien hacer una colecta para los pobres de los santos que están en Jerusalem. 
+§27 Porque les pareció bueno, y son deudores á ellos: porque si los Gentiles han sido hechos participantes de sus bienes espirituales, deben también ellos servirles en los carnales. 
+§28 Así que, cuando hubiere concluído esto, y les hubiere consignado este fruto, pasaré por vosotros á España. 
+§29 Y sé que cuando llegue á vosotros, llegaré con abundancia de la bendición del evangelio de Cristo.
 
 ## La amonestación del apóstol a la iglesia de que interceda por él
-§30 Ruégoos empero, hermanos, por el Señor nuestro Jesucristo, y por la caridad del Espíritu, que me ayudéis con oraciones por mí á Dios, §31 Que sea librado de los rebeldes que están en Judea, y que la ofrenda de mi servicio á los santos en Jerusalem sea acepta; §32 Para que con gozo llegue á vosotros por la voluntad de Dios, y que sea recreado juntamente con vosotros. §33 Y el Dios de paz sea con todos vosotros. Amén. 
+§30 Ruégoos empero, hermanos, por el Señor nuestro Jesucristo, y por la caridad del Espíritu, que me ayudéis con oraciones por mí á Dios, 
+§31 Que sea librado de los rebeldes que están en Judea, y que la ofrenda de mi servicio á los santos en Jerusalem sea acepta; 
+§32 Para que con gozo llegue á vosotros por la voluntad de Dios, y que sea recreado juntamente con vosotros. 
+§33 Y el Dios de paz sea con todos vosotros. Amén. 
 
 # 16 
 ## Recomendación de Phöbe, portador de la carta; Saludos del Apóstol a los hermanos en Roma
-§1 Encomiéndoos empero á Febe nuestra hermana, la cual es diaconisa de la iglesia que está en Cencreas: §2 Que la recibáis en el Señor, como es digno á los santos, y que la ayudéis en cualquiera cosa en que os hubiere menester: porque ella ha ayudado á muchos, y á mí mismo.
+§1 Encomiéndoos empero á Febe nuestra hermana, la cual es diaconisa de la iglesia que está en Cencreas: 
+§2 Que la recibáis en el Señor, como es digno á los santos, y que la ayudéis en cualquiera cosa en que os hubiere menester: porque ella ha ayudado á muchos, y á mí mismo.
 
-§3 Saludad á Priscila y á Aquila, mis coadjutores en Cristo Jesús; §4 (Que pusieron sus cuellos por mi vida: á los cuales no doy gracias yo solo, mas aun todas las iglesias de los Gentiles;) §5 Asimismo á la iglesia de su casa. Saludad á Epeneto, amado mío, que es las primicias de Acaya en Cristo. §6 Saludad á María, la cual ha trabajado mucho con vosotros. §7 Saludad á Andrónico y á Junia, mis parientes, y mis compañeros en la cautividad, los que son insignes entre los apóstoles; los cuales también fueron antes de mí en Cristo. §8 Saludad á Amplias, amado mío en el Señor. §9 Saludad á Urbano, nuestro ayudador en Cristo Jesús, y á Stachîs, amado mío. §10 Saludad á Apeles, probado en Cristo. Saludad á los que son de Aristóbulo. §11 Saludad á Herodión, mi pariente. Saludad á los que son de la casa de Narciso, los que están en el Señor. §12 Saludad á Trifena y á Trifosa, las cuales trabajan en el Señor. Saludad á Pérsida amada, la cual ha trabajado mucho en el Señor. §13 Saludad á Rufo, escogido en el Señor, y á su madre y mía. §14 Saludad á Asíncrito, y á Flegonte, á Hermas, á Patrobas, á Hermes, y á los hermanos que están con ellos. §15 Saludad á Filólogo y á Julia, á Nereo y á su hermana, y á Olimpas, y á todos los santos que están con ellos. §16 Saludaos los unos á los otros con ósculo santo. Os saludan todas las iglesias de Cristo.
+§3 Saludad á Priscila y á Aquila, mis coadjutores en Cristo Jesús; 
+§4 (Que pusieron sus cuellos por mi vida: á los cuales no doy gracias yo solo, mas aun todas las iglesias de los Gentiles;) 
+§5 Asimismo á la iglesia de su casa. Saludad á Epeneto, amado mío, que es las primicias de Acaya en Cristo. 
+§6 Saludad á María, la cual ha trabajado mucho con vosotros. 
+§7 Saludad á Andrónico y á Junia, mis parientes, y mis compañeros en la cautividad, los que son insignes entre los apóstoles; los cuales también fueron antes de mí en Cristo. 
+§8 Saludad á Amplias, amado mío en el Señor. 
+§9 Saludad á Urbano, nuestro ayudador en Cristo Jesús, y á Stachîs, amado mío. 
+§10 Saludad á Apeles, probado en Cristo. Saludad á los que son de Aristóbulo. 
+§11 Saludad á Herodión, mi pariente. Saludad á los que son de la casa de Narciso, los que están en el Señor. 
+§12 Saludad á Trifena y á Trifosa, las cuales trabajan en el Señor. Saludad á Pérsida amada, la cual ha trabajado mucho en el Señor. 
+§13 Saludad á Rufo, escogido en el Señor, y á su madre y mía. 
+§14 Saludad á Asíncrito, y á Flegonte, á Hermas, á Patrobas, á Hermes, y á los hermanos que están con ellos. 
+§15 Saludad á Filólogo y á Julia, á Nereo y á su hermana, y á Olimpas, y á todos los santos que están con ellos. 
+§16 Saludaos los unos á los otros con ósculo santo. Os saludan todas las iglesias de Cristo.
 
 ## Advertencia a los engañadores que causan divisiones y errores en la iglesia
-§17 Y os ruego hermanos, que miréis los que causan disensiones y escándalos contra la doctrina que vosotros habéis aprendido; y apartaos de ellos. §18 Porque los tales no sirven al Señor nuestro Jesucristo, sino á sus vientres; y con suaves palabras y bendiciones engañan los corazones de los simples. §19 Porque vuestra obediencia ha venido á ser notoria á todos; así que me gozo de vosotros; mas quiero que seáis sabios en el bien, y simples en el mal. §20 Y el Dios de paz quebrantará presto á Satanás debajo de vuestros pies. La gracia del Señor nuestro Jesucristo sea con vosotros.
+§17 Y os ruego hermanos, que miréis los que causan disensiones y escándalos contra la doctrina que vosotros habéis aprendido; y apartaos de ellos. 
+§18 Porque los tales no sirven al Señor nuestro Jesucristo, sino á sus vientres; y con suaves palabras y bendiciones engañan los corazones de los simples. 
+§19 Porque vuestra obediencia ha venido á ser notoria á todos; así que me gozo de vosotros; mas quiero que seáis sabios en el bien, y simples en el mal. 
+§20 Y el Dios de paz quebrantará presto á Satanás debajo de vuestros pies. La gracia del Señor nuestro Jesucristo sea con vosotros.
 
 ## Saludos de los amigos de Pablo a Roma y finalmente alabanza a Dios
-§21 Os saludan Timoteo, mi coadjutor, y Lucio y Jasón y Sosipater, mis parientes. §22 Yo Tercio, que escribí la epístola, os saludo en el Señor. §23 Salúdaos Gayo, mi huésped, y de toda la iglesia. Salúdaos Erasto, tesorero de la ciudad, y el hermano Cuarto. §24 La gracia del Señor nuestro Jesucristo sea con todos vosotros. Amén. §25 Y al que puede confirmaros según mi evangelio y la predicación de Jesucristo, según la revelación del misterio encubierto desde tiempos eternos, §26 Mas manifestado ahora, y por las Escrituras de los profetas, según el mandamiento del Dios eterno, declarado á todas las gentes para que obedezcan á la fe; §27 Al solo Dios sabio, sea gloria por Jesucristo para siempre. Amén. Fué escrita de Corinto á los Romanos, enviada por medio de Febe, diaconisa de la iglesia de Cencreas. 
+§21 Os saludan Timoteo, mi coadjutor, y Lucio y Jasón y Sosipater, mis parientes. 
+§22 Yo Tercio, que escribí la epístola, os saludo en el Señor. 
+§23 Salúdaos Gayo, mi huésped, y de toda la iglesia. Salúdaos Erasto, tesorero de la ciudad, y el hermano Cuarto. 
+§24 La gracia del Señor nuestro Jesucristo sea con todos vosotros. Amén. 
+§25 Y al que puede confirmaros según mi evangelio y la predicación de Jesucristo, según la revelación del misterio encubierto desde tiempos eternos, 
+§26 Mas manifestado ahora, y por las Escrituras de los profetas, según el mandamiento del Dios eterno, declarado á todas las gentes para que obedezcan á la fe; 
+§27 Al solo Dios sabio, sea gloria por Jesucristo para siempre. Amén. Fué escrita de Corinto á los Romanos, enviada por medio de Febe, diaconisa de la iglesia de Cencreas. 
