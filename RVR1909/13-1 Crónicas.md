@@ -1,93 +1,93 @@
 # 1 
 ## Los antepasados ​​hasta el diluvio
-§1 Adam, Seth, Enos, 
-§2 Cainán, Mahalaleel, Jared, 
-§3 Enoch, Mathusalem, Lamech, 
-§4 Noé, Sem, Châm, y Japhet.
+@1 Adam, Seth, Enos, 
+@2 Cainán, Mahalaleel, Jared, 
+@3 Enoch, Mathusalem, Lamech, 
+@4 Noé, Sem, Châm, y Japhet.
 
 ## Los descendientes de Noé excepto Abraham; Los jafetitas
-§5 Los hijos de Japhet: Gomer, Magog, Dadai, Javán, Tubal, Mesec, y Thiras. 
-§6 Los hijos de Gomer: Askenaz, Riphath, y Thogorma. 
-§7 Los hijos de Javán: Elisa, Tharsis, Chîthim, y Dodanim.
+@5 Los hijos de Japhet: Gomer, Magog, Dadai, Javán, Tubal, Mesec, y Thiras. 
+@6 Los hijos de Gomer: Askenaz, Riphath, y Thogorma. 
+@7 Los hijos de Javán: Elisa, Tharsis, Chîthim, y Dodanim.
 
 ## Los camitas
-§8 Los hijos de Châm: Chûs, Misraim, Phuth, y Canaán. 
-§9 Los hijos de Chûs: Seba, Havila, Sabtha, Raema, y Sabtechâ. Y los hijos de Raema: Seba y Dedán. 
-§10 Chûs engendró á Nimrod: éste comenzó á ser poderoso en la tierra. 
-§11 Misram engendró á Ludim, Ananim, Laabim, Nephtuim, 
-§12 Phetrusim y Casluim: de éstos salieron los Filisteos, y los Caphtoreos. 
-§13 Canaán engendró á Sidón, su primogénito; 
-§14 Y al Hetheo, y al Jebuseo, y al Amorrheo, y al Gergeseo; 
-§15 Y al Heveo, y al Araceo, y al Sineo; 
-§16 Al Aradeo, y al Samareo, y al Hamatheo.
+@8 Los hijos de Châm: Chûs, Misraim, Phuth, y Canaán. 
+@9 Los hijos de Chûs: Seba, Havila, Sabtha, Raema, y Sabtechâ. Y los hijos de Raema: Seba y Dedán. 
+@10 Chûs engendró á Nimrod: éste comenzó á ser poderoso en la tierra. 
+@11 Misram engendró á Ludim, Ananim, Laabim, Nephtuim, 
+@12 Phetrusim y Casluim: de éstos salieron los Filisteos, y los Caphtoreos. 
+@13 Canaán engendró á Sidón, su primogénito; 
+@14 Y al Hetheo, y al Jebuseo, y al Amorrheo, y al Gergeseo; 
+@15 Y al Heveo, y al Araceo, y al Sineo; 
+@16 Al Aradeo, y al Samareo, y al Hamatheo.
 
 ## Los semitas
-§17 Los hijos de Sem: Elam, Assur, Arphaxad, Lud, Aram, Hus, Hul, Gether, y Mesec. 
-§18 Arphaxad engendró á Sela, y Sela engendró á Heber. 
-§19 Y á Heber nacieron dos hijos: el nombre del uno fué Peleg, por cuanto en sus días fué dividida la tierra; y el nombre de su hermano fué Joctán. 
-§20 Y Joctán engendró á Elmodad, Seleph, Asarmaveth, y Jera, 
-§21 A Adoram también, á Uzal, Dicla, 
-§22 Hebal, Abimael, Seba, 
-§23 Ophir, Havila, y Jobab: todos hijos de Joctán.
+@17 Los hijos de Sem: Elam, Assur, Arphaxad, Lud, Aram, Hus, Hul, Gether, y Mesec. 
+@18 Arphaxad engendró á Sela, y Sela engendró á Heber. 
+@19 Y á Heber nacieron dos hijos: el nombre del uno fué Peleg, por cuanto en sus días fué dividida la tierra; y el nombre de su hermano fué Joctán. 
+@20 Y Joctán engendró á Elmodad, Seleph, Asarmaveth, y Jera, 
+@21 A Adoram también, á Uzal, Dicla, 
+@22 Hebal, Abimael, Seba, 
+@23 Ophir, Havila, y Jobab: todos hijos de Joctán.
 
 ## La línea recta de Sem a Abraham
-§24 Sem, Arphaxad, Sela, 
-§25 Heber, Peleg, Reu, 
-§26 Serug, Nachôr, Thare, 
-§27 Y Abram, el cual es Abraham.
+@24 Sem, Arphaxad, Sela, 
+@25 Heber, Peleg, Reu, 
+@26 Serug, Nachôr, Thare, 
+@27 Y Abram, el cual es Abraham.
 
 ## Los ismaelitas
-§28 Los hijos de Abraham: Isaac é Ismael. 
-§29 Y estas son sus descendencias: el primogénito de Ismael, Nabajoth; después Cedar, Adbeel, Misam, 
-§30 Misma, Duma, Maasa, Hadad, Thema, Jetur, Naphis, y Cedma. Estos son los hijos de Ismael. 
-§31 Y Cethura, concubina de Abraham, parió á Zimram, Jocsán, Medán, Madián, Isbac, y á Súa.
+@28 Los hijos de Abraham: Isaac é Ismael. 
+@29 Y estas son sus descendencias: el primogénito de Ismael, Nabajoth; después Cedar, Adbeel, Misam, 
+@30 Misma, Duma, Maasa, Hadad, Thema, Jetur, Naphis, y Cedma. Estos son los hijos de Ismael. 
+@31 Y Cethura, concubina de Abraham, parió á Zimram, Jocsán, Medán, Madián, Isbac, y á Súa.
 
 ## Los descendientes de Ketura
-§32 Los hijos de Jobsán: Seba y Dedán. 
-§33 Los hijos de Madián: Epha, Epher, Henoch, Abida, y Eldaa; todos estos fueron hijos de Cethura.
+@32 Los hijos de Jobsán: Seba y Dedán. 
+@33 Los hijos de Madián: Epha, Epher, Henoch, Abida, y Eldaa; todos estos fueron hijos de Cethura.
 
 ## Los descendientes de Esaú
-§34 Y Abraham engendró á Isaac: y los hijos de Isaac fueron Esaú é Israel. 
-§35 Los hijos de Esaú: Eliphas, Rehuel, Jeus, Jalam, y Cora. 
-§36 Los hijos de Eliphas: Themán, Omar, Sephi, Hatham, Chênas, Timna, y Amalec. 
-§37 Los hijos de Rehuel: Nahath, Zera, Samma, y Mizza.
+@34 Y Abraham engendró á Isaac: y los hijos de Isaac fueron Esaú é Israel. 
+@35 Los hijos de Esaú: Eliphas, Rehuel, Jeus, Jalam, y Cora. 
+@36 Los hijos de Eliphas: Themán, Omar, Sephi, Hatham, Chênas, Timna, y Amalec. 
+@37 Los hijos de Rehuel: Nahath, Zera, Samma, y Mizza.
 
-§38 Los hijos de Seir: Lotán, Sobal, Sibeón, Ana, Disón, Eser, y Disán. 
-§39 Los hijos de Lotán: Hori, y Homam: y Timna fué hermana de Lotán. 
-§40 Los hijos de Sobal: Alian, Manahach, Ebal, Sephi y Oman. Los hijos de Sibehom: Aia y Ana. 
-§41 Disón fué hijo de Ana: y los hijos de Disón; Hamrán, Hesbán, Ithran y Chêrán. 
-§42 Los hijos de Eser: Bilham, Zaaván, y Jaacán. Los hijos de Disán: Hus y Arán.
+@38 Los hijos de Seir: Lotán, Sobal, Sibeón, Ana, Disón, Eser, y Disán. 
+@39 Los hijos de Lotán: Hori, y Homam: y Timna fué hermana de Lotán. 
+@40 Los hijos de Sobal: Alian, Manahach, Ebal, Sephi y Oman. Los hijos de Sibehom: Aia y Ana. 
+@41 Disón fué hijo de Ana: y los hijos de Disón; Hamrán, Hesbán, Ithran y Chêrán. 
+@42 Los hijos de Eser: Bilham, Zaaván, y Jaacán. Los hijos de Disán: Hus y Arán.
 
 ## Los reyes y jefes edomitas
-§43 Y estos son los reyes que reinaron en la tierra de Edom, antes que reinase rey sobre los hijos de Israel: Belah, hijo de Beor; y el nombre de su ciudad fué Dinaba. 
-§44 Y muerto Belah, reinó en su lugar Jobab hijo de Zera, de Bosra. 
-§45 Y muerto Jobab, reinó en su lugar Husam, de la tierra de los Themanos. 
-§46 Muerto Husam, reinó en su lugar Adad hijo de Bedad, el cual hirió á Madián en la campaña de Moab: y el nombre de su ciudad fué Avith. 
-§47 Muerto Adad, reinó en su lugar Samla, de Masreca. 
-§48 Muerto también Samla, reinó en su lugar Saúl de Rehoboth, que está junto al río. 
-§49 Y muerto Saúl, reinó en su lugar Baal-hanán hijo de Achbor. 
-§50 Y muerto Baal-hanán, reinó en su lugar Adad, el nombre de cuya ciudad fué Pai; y el nombre de su mujer Meetabel, hija de Matred, y ésta de Mezaab. 
-§51 Muerto Adad, sucedieron los duques en Edom: el duque Timna, el duque Alia, el duque Jetheth, 
-§52 El duque Oholibama, el duque Ela, el duque Phinón, 
-§53 El duque Chênaz, el duque Themán, el duque Mibzar, 
-§54 El duque Magdiel, el duque Iram. Estos fueron los duques de Edom. 
+@43 Y estos son los reyes que reinaron en la tierra de Edom, antes que reinase rey sobre los hijos de Israel: Belah, hijo de Beor; y el nombre de su ciudad fué Dinaba. 
+@44 Y muerto Belah, reinó en su lugar Jobab hijo de Zera, de Bosra. 
+@45 Y muerto Jobab, reinó en su lugar Husam, de la tierra de los Themanos. 
+@46 Muerto Husam, reinó en su lugar Adad hijo de Bedad, el cual hirió á Madián en la campaña de Moab: y el nombre de su ciudad fué Avith. 
+@47 Muerto Adad, reinó en su lugar Samla, de Masreca. 
+@48 Muerto también Samla, reinó en su lugar Saúl de Rehoboth, que está junto al río. 
+@49 Y muerto Saúl, reinó en su lugar Baal-hanán hijo de Achbor. 
+@50 Y muerto Baal-hanán, reinó en su lugar Adad, el nombre de cuya ciudad fué Pai; y el nombre de su mujer Meetabel, hija de Matred, y ésta de Mezaab. 
+@51 Muerto Adad, sucedieron los duques en Edom: el duque Timna, el duque Alia, el duque Jetheth, 
+@52 El duque Oholibama, el duque Ela, el duque Phinón, 
+@53 El duque Chênaz, el duque Themán, el duque Mibzar, 
+@54 El duque Magdiel, el duque Iram. Estos fueron los duques de Edom. 
 
 # 2 
 ## Los hijos de Jacob Israel y las familias de la tribu de Judá
-§1 Estos son los hijos de Israel: Rubén, Simeón, Leví, Judá, Issachâr, Zabulón, 
-§2 Dan, José, Benjamín, Nephtalí, Gad, y Aser.
+@1 Estos son los hijos de Israel: Rubén, Simeón, Leví, Judá, Issachâr, Zabulón, 
+@2 Dan, José, Benjamín, Nephtalí, Gad, y Aser.
 
 ## De Judá a Hezrón
-§3 Los hijos de Judá: Er, Onán, y Sela. Estos tres le nacieron de la hija de Sua, Cananea. Y Er, primogénito de Judá, fué malo delante de Jehová; y matólo. 
-§4 Y Thamar su nuera le parió á Phares y á Zara. Todos los hijos de Judá fueron cinco.
+@3 Los hijos de Judá: Er, Onán, y Sela. Estos tres le nacieron de la hija de Sua, Cananea. Y Er, primogénito de Judá, fué malo delante de Jehová; y matólo. 
+@4 Y Thamar su nuera le parió á Phares y á Zara. Todos los hijos de Judá fueron cinco.
 
-§5 Los hijos de Phares: Hesrón y Hamul. 
-§6 Y los hijos de Zara: Zimri, Ethán, Hemán, y Calcol, y Darda; en todos cinco. 
-§7 Hijo de Chârmi fué Achâr, el que alborotó á Israel, porque prevaricó en el anatema. 
-§8 Azaría fué hijo de Ethán.
+@5 Los hijos de Phares: Hesrón y Hamul. 
+@6 Y los hijos de Zara: Zimri, Ethán, Hemán, y Calcol, y Darda; en todos cinco. 
+@7 Hijo de Chârmi fué Achâr, el que alborotó á Israel, porque prevaricó en el anatema. 
+@8 Azaría fué hijo de Ethán.
 
 ## De Hezron a David (la línea Ram)
-§9 Los hijos que nacieron á Hesrón: Jerameel, Ram, y Chêlubai. 
+@9 Los hijos que nacieron á Hesrón: Jerameel, Ram, y Chêlubai. 
 §10 Y Ram engendró á Aminadab; y Aminadab engendró á Nahasón, príncipe de los hijos de Judá; 
 §11 Y Nahasón engendró á Salma, y Salma engendró á Booz; 
 §12 Y Booz engendró á Obed, y Obed engendró á Isaí; 
