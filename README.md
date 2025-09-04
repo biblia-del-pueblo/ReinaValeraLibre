@@ -1,7 +1,7 @@
 # Reina Valera Libre
 BibleMarkdown source of the Reina Valera Libre bible translation.
 
-BibleMarkdown is a Markdown dialect tailored for Bibles. BibleMarkdown is normal pandoc Markdown with the following extensions:
+[BibleMarkdown](https://github.com/biblia-del-pueblo/BibleMarkdown) is a Markdown dialect tailored for Bibles. BibleMarkdown is normal pandoc Markdown with the following extensions:
 
 - For Footnotes you can make them more readable, by placing a marker ^label^ at the place of the footnote, but specifying the footnote later in the text with ordinary ^label^[Footnote] markdown. "label" must be a letter or word without any digits.
 - You can have comments by bracing them with /\* and \*/ or by leading with // until the end of the line. /\* \*/ Comments can span multiple lines.
